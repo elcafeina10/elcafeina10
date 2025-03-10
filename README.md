@@ -1,3 +1,5 @@
+![](https://64.media.tumblr.com/0c2e0ea28b624d28e7b4c86c9797c945/2967e7f804e4acb6-98/s2048x3072/dfa51180f4dd31b406af2bf0370d911d2159fa1f.pnj)
+
  <p align="center">
 Best seen on light mode !!
 
@@ -12,3 +14,5 @@ iziksfavpookie on tumblr --v
    ╭  Tweek ₒᵣ Jears
    ┊✎ ESFP-T   13-16
 ㅤ  ⤷ㅤִHE ﾉ HIM
+
+![](https://64.media.tumblr.com/0c2e0ea28b624d28e7b4c86c9797c945/2967e7f804e4acb6-98/s2048x3072/dfa51180f4dd31b406af2bf0370d911d2159fa1f.pnj)
