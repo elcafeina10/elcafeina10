@@ -1,4 +1,4 @@
-![](https://64.media.tumblr.com/0c2e0ea28b624d28e7b4c86c9797c945/2967e7f804e4acb6-98/s2048x3072/dfa51180f4dd31b406af2bf0370d911d2159fa1f.pnj)
+![](https://64.media.tumblr.com/58bd11950804a25cd5e97b7b172de193/6082e599d0cea299-e4/s1280x1920/bc088ea0c6120738bed809b31173ba69828a4316.pnj)
 
  <p align="center">
 my FAVORITE ARTIST SKIMPY ON TWITTER --v
@@ -14,4 +14,4 @@ my FAVORITE ARTIST SKIMPY ON TWITTER --v
    ┊✎ ESFP-T   13-16
 ㅤ  ⤷ㅤִHE ﾉ HIM
 
-![](https://64.media.tumblr.com/0c2e0ea28b624d28e7b4c86c9797c945/2967e7f804e4acb6-98/s2048x3072/dfa51180f4dd31b406af2bf0370d911d2159fa1f.pnj)
+![](https://64.media.tumblr.com/fbdcd1aa89b487cd8bf113629b32e82e/6082e599d0cea299-3d/s1280x1920/7bbea1d6231443dbde09e50e55bd1fe180a28b0b.pnj)
