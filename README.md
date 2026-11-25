@@ -9,7 +9,7 @@
 
 
   <p align="center">✦ JEARS ｡ WESTON ｡ IVAN ✦ 
-  <p align="center">𓏴 HE  ｡  HIM  ｡  THEY ｡ <a href="https://elcafeina.carrd.co">CARRD</a> 𓏴
+  <p align="center">𓏴 HE  ｡  THEY ｡ <a href="https://elcafeina.carrd.co">CARRD</a> 𓏴 <a href="https://elcafeina.atabook.org">ATABOOK</a>
 
 <p align="center">
   <a href="https://git.io/typing-svg">
